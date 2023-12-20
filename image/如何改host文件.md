@@ -1,6 +1,5 @@
 # 萌萝.抖音.快手
-### 18+爱莉萝下载<a rel="nofollow noopener" href="https://wjp6el9k.top//?channel_code=MIM33BBG" target="_blank">点击进入</a>
-### 18+萌萝莉下载<a rel="nofollow noopener" href="https://nsfsrnj2apqq.top/?channel_code=MIM07BBG" target="_blank">点击进入</a>
+### 18+萌萝莉下载<a rel="nofollow noopener" href="https://wjp6el9k.top//?channel_code=MIM33BBG" target="_blank">点击进入</a>
 ### 18+小太妹下载<a rel="nofollow noopener" href="https://8wtsbj8iks09.top/?channel_code=MIM03BBG" target="_blank">点击进入</a>
 ### 18+抖音下载<a rel="nofollow noopener" href="https://ih3rx99zwdiy.top/?channel_code=MIM05BBG" target="_blank">点击进入</a>
 ### 18+快手下载<a rel="nofollow noopener" href="https://l2lmkzb98xf4.top/?channel_code=MIM04BBG" target="_blank">点击进入</a>
