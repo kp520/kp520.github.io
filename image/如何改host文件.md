@@ -8,8 +8,7 @@
 ### 18+爱莉萝下载<a rel="nofollow noopener" href="https://haoshun-keji.com/e/33/MIM33BBG" target="_blank">点击进入</a>
 ### 18+欲漫漫下载<a rel="nofollow noopener" href="https://haoshun-keji.com/e/7/MIM07BG" target="_blank">点击进入</a>
 # 漫画.次元.糖心
-### 18+哔咔漫画下载<a rel="nofollow noopener" href="https://bk2usqlgy.com?ch=oebg21bk" target="_blank">点击进入</a>
-### 18+糖心下载<a rel="nofollow noopener" href="https://txvv8h22fe.com/?_c=oebg31tx" target="_blank">点击进入</a>
-### 18+海角社区<a rel="nofollow noopener" href="https://d.hj92kb.com/?channel=ykhjqq1" target="_blank">点击进入</a>
-### 18+黑料中心下载<a rel="nofollow noopener" href="https://mxvnlnziah2d.top/?channel_code=MIM02BBG" target="_blank">点击进入</a>
+### 18+哔咔漫画下载<a rel="nofollow noopener" href="https://apk.hcf4osvk.com/bika-oebg21bk?_v=89141" target="_blank">点击进入</a>
+### 18+糖心下载<a rel="nofollow noopener" href="https://apk.exrbi32b.com/tangxin-oebg31tx?_v=89141" target="_blank">点击进入</a>
+### 18+海角社区<a rel="nofollow noopener" href="https://apk.whcdsp.com/ykhjqq1" target="_blank">点击进入</a>
 
