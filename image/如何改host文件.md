@@ -11,4 +11,5 @@
 ### 18+哔咔漫画下载<a rel="nofollow noopener" href="https://apk.hcf4osvk.com/bika-oebg21bk?_v=89141" target="_blank">点击进入</a>
 ### 18+糖心下载<a rel="nofollow noopener" href="https://apk.exrbi32b.com/tangxin-oebg31tx?_v=89141" target="_blank">点击进入</a>
 ### 18+海角社区<a rel="nofollow noopener" href="https://apk.whcdsp.com/ykhjqq1" target="_blank">点击进入</a>
-
+# 同城約愛
+### (可裸)直接約<a rel="nofollow noopener" href="https://jy0304.pek3b.qingstor.com/zlink.html?p=001gz_298" target="_blank">点击进入</a>
