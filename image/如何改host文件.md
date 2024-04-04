@@ -13,7 +13,7 @@
 ### 18+爱莉萝下載<a rel="nofollow noopener" href="https://rbf7nfgc57gx.top/?channel_code=MIM33BBG" target="_blank">点击进入</a>
 ### 18+欲漫漫下載<a rel="nofollow noopener" href="https://k16moc6d2kto.top/?channel_code=MIM07BG" target="_blank">点击进入</a>
 # 漫畫.次元.糖心
-### 18+哔咔漫画下载<a rel="nofollow noopener" href="https://u2zv6usnj.com/?ch=oebg21bk_v=89141" target="_blank">点击进入</a>
+### 18+哔咔漫画下载<a rel="nofollow noopener" href="https://u2zv6usnj.com/?ch=oebg21bk" target="_blank">点击进入</a>
 ### 18+糖心下载<a rel="nofollow noopener" href="https://amq0cycxb.com/?_c=oebg31tx" target="_blank">点击进入</a>
 ### 18+海角社区<a rel="nofollow noopener" href="https://apk.whcdsp.com/ykhjqq1" target="_blank">点击进入</a>
 # 同城約愛
