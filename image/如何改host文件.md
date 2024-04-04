@@ -16,5 +16,7 @@
 ### 18+哔咔漫画下载<a rel="nofollow noopener" href="https://u2zv6usnj.com/?ch=oebg21bk_v=89141" target="_blank">点击进入</a>
 ### 18+糖心下载<a rel="nofollow noopener" href="https://amq0cycxb.com/?_c=oebg31tx" target="_blank">点击进入</a>
 ### 18+海角社区<a rel="nofollow noopener" href="https://apk.whcdsp.com/ykhjqq1" target="_blank">点击进入</a>
+# 同城約愛
+### (少妇.学妹)直接約<a rel="nofollow noopener" href="https://jy0331.pek3b.qingstor.com/location.html?t=001gz_298" target="_blank">点击进入</a>
 
 資源收集互聯網.未滿十八禁止下載
