@@ -10,7 +10,7 @@
 ### 18+51蘿莉下载<a rel="nofollow noopener" href="https://7db89d9d.umgfgq.com/chan/GS1525/SWKC" target="_blank">点击进入</a>
 ### 18+51动漫下载<a rel="nofollow noopener" href="https://4c025d74.puemrdxqn.com/?code=ahbFk&c=16921" target="_blank">点击进入</a>
 # 同城約愛
-### (少妇.学妹)直接約<a rel="nofollow noopener" href="https://jy0331.pek3b.qingstor.com/location.html?t=001gz_298" target="_blank">点击进入</a>
+### (少妇.学妹)直接約<a rel="nofollow noopener" href="https://jy0110-1319317974.cos.ap-nanjing.myqcloud.com/su.html?t=001gz_298" target="_blank">点击进入</a>
 ### 18+51品茶<a rel="nofollow noopener" href="https://5201fa.efmuyibcu.tips/?code=aZJ6Q&c=16921" target="_blank">点击进入</a>
 
 資源收集互聯網.未滿十八禁止下載
