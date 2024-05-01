@@ -16,5 +16,6 @@
 # 同城約愛
 ### (少妇.学妹)直接約<a rel="nofollow noopener" href="https://jy0430.eefn.top/su.html?t=001gz_298" target="_blank">点击进入</a>
 ### 18+51品茶<a rel="nofollow noopener" href="https://77c88bb.rvihafnvb.com/?code=aZJ6Q&c=16921" target="_blank">点击进入</a>
-
+# 娱乐城
+### 彩票.棋牌.體育.下载<a rel="nofollow noopener" href="https://lucky816.com/risshv" target="_blank">点击进入</a>
 資源收集互聯網.未滿十八禁止下載
